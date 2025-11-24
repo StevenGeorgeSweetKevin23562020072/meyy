@@ -1,0 +1,2 @@
+# meyy
+ucapan ultah simpel
